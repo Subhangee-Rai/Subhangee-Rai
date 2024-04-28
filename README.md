@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aradhya81702002@gmail.com**
 
-- ⚡ Fun fact **Even though I might seem a bit clumsy, I'm always striving for perfection.**
+- ⚡ Fun fact **Even though I might seem a bit clumsy but I'm always striving for perfection.**
 <br>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
